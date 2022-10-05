@@ -15,5 +15,9 @@ Thank you.
 
 
 Thanks for IllOmenX he was the first to publish the work giving the rest of us a lot of time to read his code and improve apon it, like newton said
-"I am tall because I stand on the shoulder of giants" THANK YOU IllOmenX
+"I am tall because I stand on the shoulder of giants" 
+
+THANK YOU IllOmenX
+
+
 And finally thanks to Alvaro for his pacience listing to my madness.THANK YOU
