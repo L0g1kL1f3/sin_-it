@@ -7,7 +7,7 @@ and if you are incline to read this beware it is a lot.:)
 
 
 Would like to take this oportunaty to thank, my teacher Alberto Romero and his teacher assistences Carmelo Gragera, Julia Martinez Tapia and Jhon Moncaleano. 
-Thank you for your pacience, to deal with someone like me I am sure you are not paied well enough... yet some how you still manage to help me and give me feedback.
+Thank you for your pacience, to deal with someone like me I am sure you are not paid well enough... yet some how you still manage to help me and give me feedback.
 
 Thank you.
 
@@ -20,4 +20,4 @@ Thanks for IllOmenX he was the first to publish the work giving the rest of us a
 THANK YOU IllOmenX
 
 
-And finally thanks to Alvaro for his pacience listing to my madness.THANK YOU
+And finally thanks to Alvaro-Maldo for his pacience listing to my madness.THANK YOU
